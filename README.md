@@ -1,1 +1,0 @@
-# kortyshko_mobile_334_2
